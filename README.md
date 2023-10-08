@@ -1,1 +1,1 @@
-# Preparation-and-maintance-of-ZOHO-Books-for-Edu-connect-Learning-centre-NM2023TMID13722
+# Preparation-and-maintanence-of-ZOHO-Books-for-Edu-connect-Learning-centre-NM2023TMID13722
